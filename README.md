@@ -1,13 +1,13 @@
 # Their History
-This Page Will Permanent Exist Forever
+This Page Will Exist Permanently Untill We Die.
 
 ## Brief
 
 - BinBin & ChengYan
 
-- binbinyouli: BINBINYOULI
+- binbinyouli
 
-- bbyl is short for binbinyouli: BBYL IS SHORT FOR BINBINYOULI
+- bbyl(BBYL) is short for binbinyouli
 
 ## Main Events
 
