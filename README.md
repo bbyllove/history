@@ -41,6 +41,7 @@
 - YuYao
   - ZhongAn Plaza: A Sweet & Secret Spot
 - CiXi
+- HangZhou
 - ShangYu
 - NingBo
 
