@@ -10,7 +10,7 @@
 
 ## Main Events
 
-### Sweet Memory
+### Sweet Memories
 - 2025.01.25 Add Wechat
 - 2025.01.26 First Meet
 - 2025.02.02 Second Meet
@@ -22,8 +22,9 @@
 - 2025.05.07 Visit My House @ Hangzhou for The First Time
 - 2025.05.17 Meet My Parents for The First Time
 - 2025.05.24 Big Meeting for The Parents of Both Sides & Other Important Persons
+- Waiting for A Long Time To Be Engaged
 
-### Bitter Memory
+### Bitter & Black Memories
 - 2025.11.29 You Try To Break Up for The First Time
 - 2025.12.19 Break Up Successfully for The First Time By Your Methods
 - 2025.12.28 Re-connected
@@ -33,7 +34,7 @@
 
 ### Places
 - YuYao
-  - ZhongAn PLAZA: A Sweet & Secret Spot
+  - ZhongAn Plaza: A Sweet & Secret Spot
 - CiXi
 - ShangYu
 - NingBo
