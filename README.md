@@ -2,11 +2,11 @@
 
 ## Brief
 
-BinBin & ChengYan
+- BinBin & ChengYan
 
-binbinyouli
+- binbinyouli
 
-bbyl is short for binbinyouli
+- bbyl is short for binbinyouli
 
 ## Main Events
 - 2025.01.25 Add WeChat
