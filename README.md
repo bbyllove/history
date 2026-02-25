@@ -1,12 +1,13 @@
 # Their History
+This Page Will Permanent Exist Forever
 
 ## Brief
 
 - BinBin & ChengYan
 
-- binbinyouli
+- binbinyouli: BINBINYOULI
 
-- bbyl is short for binbinyouli
+- bbyl is short for binbinyouli: BBYL IS SHORT FOR BINBINYOULI
 
 ## Main Events
 
@@ -32,10 +33,18 @@
 - 2026.01.30 Break Up Successfully for The Second Time By Your Methods
 - 2026.02.24 Voice Chat On Wechat
 
-### Days Matter
+### Ending
+- Bad?
+
+### Numbers & Words Matter
 - 266
 - 273
-
+- 1101
+- 0516
+- 7
+- Tiger
+- Sheep
+- 
 
 ## Places
 - YuYao
