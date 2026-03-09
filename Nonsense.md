@@ -3,8 +3,9 @@
 ### Preface
 2026.03.05: Though we are apart, I still miss you terribly at this moment. So I create this page to record my feelings over time. 
 
-
 ### Timelines
+
+我在想，如果你有一天真的看到了下面的所有文字，你是不是还是会挑我话里刺，想到就瑟瑟发抖！
 
 #### Mar. 2026
 
