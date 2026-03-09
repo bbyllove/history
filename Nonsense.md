@@ -9,6 +9,9 @@
 
 #### Mar. 2026
 
+2026.03.11
+- 心好累，每天不光在你这里跳进跳出。还在找和不找之间跳进跳出。我不想妥协啊，可遇不到双向奔赴的根本没兴趣。
+
 2026.03.10
 - Only if you asked to see me will our meeting be meaningful!
 - The above sentence comes from the drama "Someday or One Day" (台剧《想见你》), and I have rewatched this drama recently.
