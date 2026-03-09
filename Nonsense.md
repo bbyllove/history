@@ -11,6 +11,9 @@
 2026.03.10
 - Only if you asked to see me will our meeting be meaningful!
 - The above sentence comes from the drama "Someday or One Day" (台剧《想见你》), and I have rewatched this drama recently.
+- 我觉得我真的是疯了，明明你已经放下了，明明你已经在找各种我“不好”的点来说服自己放下，我还在时不时想有没有复合的可能性，还在想有没有办法。
+- 其实我也在找你各种“不好”的点，但我真的说服不了自己，我没有你那么绝情啊，我跟你相处的时候只看你好的点，跟你分开了也只想你好的点。
+- 每天跳进跳出，真的好累。一会儿想通了，一会儿又想不通了。
 
 2026.03.09
 - Will you still miss me? How much do you miss me? Or have you already forgotten me?
