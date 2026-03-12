@@ -14,6 +14,8 @@
 - Will you still miss me? How much do you miss me? Or have you already forgotten me?
 - Can you tell me that you DO NOT miss me, so I can stop wondering!
 
+2026.03.12
+- 昨晚做梦梦见你了，我们还是复合第三次在一起了，我感觉你很开心，我们就一起躲，很多人帮我们躲，最后被你妈发现了，我说相信我，我去搞定她，然后闹钟就响了！
 
 2026.03.11
 - 心好累，每天不光在你这里跳进跳出。还在找和不找之间跳进跳出。我不想妥协啊，可遇不到双向奔赴的根本没兴趣。
