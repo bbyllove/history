@@ -14,7 +14,7 @@
 2026.03.27
 - having not been here for 5 days, although I have many thoughts, I do not want to record the feelings as often as before.
 - 我发现我每次都会跟着你的思路去解释，真的好累，也怪我自己太实诚了。其实我应该反驳的，比如最后一次通话你说我把钱看的比你重，那我要反驳，我都愿意结婚之后卖掉杭州的房子（多次打电话说过了）或者拿出婚前的积蓄在余姚买一套房子（在第一封信里我说了，都不用你出钱），直接送一半给你了，这你怎么说啊？非要拿着公共账户说事，我也是醉了。你就继续找茬说我坏吧，习惯了。
-- Today I re-read the long letter you wrote to me and the article about Pseudo-detachment carefully, and I feel relieved Unexpectedly!
+- Today I re-read the long letter you wrote to me and the article about pseudo-detachment(假性疏离) carefully, and I feel relieved unexpectedly!
 
 
 2026.03.22
