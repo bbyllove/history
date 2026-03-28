@@ -13,13 +13,12 @@
 
 2026.03.27
 - having not been here for 5 days, although I have many thoughts, I do not want to record the feelings as often as before.
-- I noted that the slogan should be corrected to "A Place That Records The History Of BBYL". Never mind, the life is always full of misktakes.
+- I noted that the slogan "A Place Where Records History Of BBYL" should be corrected to "A Place That Records The History Of BBYL". Never mind, the life is always full of misktakes.
 - 我发现我每次都会跟着你的思路去解释，真的好累，也怪我自己太实诚了。其实我应该反驳的，比如最后一次通话你说我把钱看的比你重，那我要反驳，我都愿意结婚之后卖掉杭州的房子（多次打电话说过了）或者拿出婚前的积蓄在余姚买一套房子（在第一封信里我说了，都不用你出钱），直接送一半给你了，这你怎么说啊？非要拿着公共账户说事，我也是醉了。你就继续找茬说我坏吧，习惯了。太搞笑了，我知道你早就放下不揪着我了，我此刻还在解释！
-- Today I re-read the long letter you wrote to me and the article about pseudo-detachment(假性疏离) carefully, and I feel relieved unexpectedly!
-
+- Today I re-read the long letter you wrote to me and the article about pseudo-detachment(假性疏离) carefully for two times, and I feel relieved unexpectedly! Even knowing that, I still can do nothing.
 
 2026.03.22
-- 中午去万达了，到了还是先去停车场我们的专用位置去看了看，没有你的车，其实我知道你哪怕现在去这些商场，大概率不会停在老位置了，所以我真个停车场大致都走了一遍，确实没有你。
+- 中午去万达了，到了还是先去停车场我们的专用位置去看了看，没有你的车，其实我知道你哪怕现在去这些商场，大概率不会停在老位置了，所以我整个停车场大致都走了一遍，确实没有你。
 - 去年的现在在ktv里唱歌，我记得我忐忑的心，差不多过一会儿要牵你的手了。头很痛，睡午觉了。
 - 晚上又是同一班动车回杭州，唉！
 - 这几天不是一直在零星弄我们的网站么，定型了，也不想再弄，全部截图、截屏存下来，要不是你会不会翻墙，我没必要弄这个截屏，直接给你这个网址你自己去访问就好了。
