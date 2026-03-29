@@ -11,8 +11,15 @@
 
 #### Mar. 2026
 
+2026.03.29
+- Another important day which you must know! Refer to 'Their History' if you forget.
+- Yesterday and today, I had two psychological counseling sessions to talk about the breakup that has been bothering me.
+- Actually, I wanted to call you yesterday or today, but I decided against it in the end because I didn't know your current situation(your feelings to me).
+- Last night, while I was taking off my clothes—that white top I used to wear often during the final period when we were struggling with each other—I suddenly caught a whiff of a fragrance. It really was lovely. So it's true, I do have a scent. I never dared to tell you this, but my first girlfriend also liked to get close and smell me. Though she said it was because she liked my clean scent. You two are the only ones who've ever said I smell good. 昨天晚上我在脱衣服的时候，就是那件我们最后拉扯的那段时间我经常穿的白色内衣，我突然闻到了香味，确实好香啊，原来我真的有香味。我一直不敢跟你说，其实我第一任也喜欢靠过来闻我身上的味道，但她的说法是喜欢我身上干净的味道。你们俩是唯二说我好闻的人。
+
+
 2026.03.27
-- having not been here for 5 days, although I have many thoughts, I do not want to record the feelings as often as before.
+- Having not been here for 5 days, although I have many thoughts, I do not want to record the feelings as often as before.
 - I noted that the slogan "A Place Where Records History Of BBYL" should be corrected to "A Place That Records The History Of BBYL". Never mind, the life is always full of mistakes.
 - 我发现我每次都会跟着你的思路去解释，真的好累，也怪我自己太实诚了。其实我应该反驳的，比如最后一次通话你说我把钱看的比你重，那我要反驳，我都愿意结婚之后卖掉杭州的房子（多次打电话说过了）或者拿出婚前的积蓄在余姚买一套房子（在第一封信里我说了，都不用你出钱），直接送一半给你了，这你怎么说啊？非要拿着公共账户说事，我也是醉了。你就继续找茬说我坏吧，习惯了。太搞笑了，我知道你早就放下不揪着我了，我此刻还在解释！
 - Today I re-read the only long letter you wrote to me and the article about pseudo-detachment(假性疏离) carefully for TWO times, and I feel relieved unexpectedly! Even knowing that, I still can do nothing.
