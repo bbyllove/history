@@ -11,6 +11,9 @@
 
 #### Mar. 2026
 
+2026.03.30
+- 本来不想更新的，但昨晚做梦梦见你了，还是得写一下。你在班级里组织学生整体换座位，我进去了坐在最后面，然后变成你在讲台上讲课了，好像你也知道我在下面，然后你讲课会有点拘束？记不清楚了。我远远的看不清你的脸，梦境里确实从来没看清楚过，也不是前后一致的，而且上面的场景是发生在余姚中学，并不是你的小学。
+
 2026.03.29
 - Another important day which you must know! Refer to 'Their History' if you forget.
 - Yesterday and today, I had two psychological counseling sessions to talk about the breakup that has been bothering me.
@@ -21,8 +24,9 @@
 2026.03.27
 - Having not been here for 5 days, although I have many thoughts, I do not want to record the feelings as often as before.
 - I noted that the slogan "A Place Where Records History Of BBYL" should be corrected to "A Place That Records The History Of BBYL". Never mind, the life is always full of mistakes.
-- 我发现我每次都会跟着你的思路去解释，真的好累，也怪我自己太实诚了。其实我应该反驳的，比如最后一次通话你说我把钱看的比你重，那我要反驳，我都愿意结婚之后卖掉杭州的房子（多次打电话说过了）或者拿出婚前的积蓄在余姚买一套房子（在第一封信里我说了，都不用你出钱），直接送一半给你了，这你怎么说啊？非要拿着公共账户说事，我也是醉了。你就继续找茬说我坏吧，习惯了。太搞笑了，我知道你早就放下不揪着我了，我此刻还在解释！
+- 我发现我每次都会跟着你的思路去解释，真的好累，也怪我自己太实诚了。其实我应该反驳的，比如最后一次通话你说我把钱看的比你重，那我要反驳，我都愿意结婚之后卖掉杭州的房子（多次打电话说过了）或者拿出婚前的积蓄在余姚买一套房子（在第一封信里我说了，都不用你出钱），直接送一半给你了，这你怎么说啊？非要拿着公共账户说事，我也是醉了。你就继续找茬说我坏吧，习惯了。太搞笑了，我知道你早就放下不揪着我了，而我我此刻还在“解释”！
 - Today I re-read the only long letter you wrote to me and the article about pseudo-detachment(假性疏离) carefully for TWO times, and I feel relieved unexpectedly! Even knowing that, I still can do nothing.
+- 这周有个猎头跟我说了一个可以居家办公的工作(初创企业)，意思是可以大致匹配现在的工资，总部在上海(面相海外市场)，人可以在家办公，社保的话可以交在杭州(这样就可以延续我在杭州的社保和医保记录)。除了这个公司是初创企业很难评以外，其他的基本上满足了我自己找工作的要求吧。我之前也大致跟你说过的可以找居家办公的工作。这样的好处就是我可以长期呆在余姚(婚后在余姚买一套小的就好了)，我们每天都可以在一起，我反而可以变成更顾家的那个人，而我也愿意照顾小孩子，我多希望跟你有一个自己的孩子，每天开开心心的陪在她/他身边，我实在想不出来为什么“不能把日子过好？”。说来说去就是你自己所有的事情都认死理，认为只有一种解法，而且但凡我身体不舒服就认定是那个原因，你的这个文科生的脑回路真的让人很无语。
 
 2026.03.22
 - 中午去万达了，到了还是先去停车场我们的专用位置去看了看，没有你的车，其实我知道你哪怕现在去这些商场，大概率不会停在老位置了，所以我整个停车场大致都走了一遍，确实没有你。
